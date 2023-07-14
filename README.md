@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **gonzaguebeyeler@yahoo.fr**
 
-- 📄 Know about my experiences [Gonzague_BEYELER.pdf]
+- 📄 Know about my experiences [Gonzague_BEYELER.pdf](Gonzague_BEYELER.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
